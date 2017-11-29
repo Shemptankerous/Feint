@@ -4,15 +4,15 @@ As the driver applied the breaks three young men in bellhop uniforms began gathe
 
 "George," she said "be careful getting those down.  The boys' gifts are in that one." She gestured to a suitcase with a floral print.  George pulled it down out of the overhead rack.  He could quite manage the weight as well as he'd thought and it thudded to the floor. After a click and a sigh, the wife muttered "I don't know why I waste my breath."
 
-"_I_ don't know why _you _needed to pack everything in the condo, Ellen." George responded as he hefted down two more suitcases.  "This isn't the wilds of Africa.  They have CVS here."
+"_I_ don't know why \_you \_needed to pack everything in the condo, Ellen." George responded as he hefted down two more suitcases.  "This isn't the wilds of Africa.  They have CVS here."
 
-"You wouldn't have load and unload the bags if you would have let Micheal pick us up."  Ellen responded. 
+"You wouldn't have load and unload the bags if you would have let Micheal pick us up."  Ellen responded.
 
- This seemed to have struck a nerve as George turned to face her with his eyebrows askew, "If we'd let your son pick us up, I'd still be sitting in the terminal on my second $9 cup of coffee watching you check your phone every ten seconds and listening to you ask me if I think everythings okay.... again...".  Just then the side panel door of the shuttle opened and the tallest of the 3 bell hops was leaning his capped head into the shuttle, one hand still grasping his luggage carts brass bar either to balance himself or to keep the cart from rolling away.
+This seemed to have struck a nerve as George turned to face her with his eyebrows askew, "If we'd let your son pick us up, I'd still be sitting in the terminal on my second $9 cup of coffee watching you check your phone every ten seconds and listening to you ask me if I think everythings okay.... again...".  Just then the side panel door of the shuttle opened and the tallest of the 3 bell hops was leaning his capped head into the shuttle, one hand still grasping his luggage carts brass bar either to balance himself or to keep the cart from rolling away.
 
 "Can I help you with that sir?" the bell hop called in to a man in a navy blue suit.The man's tie was loosened and slightly skewed left.  If he'd had a rumpled hat he would have been a ringer for a comic strip drunkard.  Maybe "Hic, Hic" floating up above his head in a word bubble.
 
-"Yes, Thanks." the man in the suit responded, clearly not drunk at all.  He gestured toward a non-descript black rolling suitcase.  It had a neon-green luggage tag with _L.Stevens_ written on the slip inside.  The bell-hop put one foot on the edge of the bus and reached in further to grasp the handle of Mr. Stevens' suitcase.  He could see the bell-hops name tag said _Kenneth _in white lettering.
+"Yes, Thanks." the man in the suit responded, clearly not drunk at all.  He gestured toward a non-descript, black, rolling suitcase.  It had a neon-green luggage tag with _L.Stevens_ written on the slip of lined paper inside.  The bellhop put one foot on the edge of the bus and reached in further to grasp the handle of Mr. Stevens' suitcase.  He could see the name _Kenneth _etched_ _in white lettering on the metalic copper colored name tag pinned to his burgundy colored jacket.  The tags copper was matched by the buttons and trim on the jacket of Kenneth's bellhop uniform. 
 
 Duffle over his shoulder he stood, and gathered his suitcase. He had tucked the paper under his left arm when he’d stood up. He placed his right hand on it with the intention of replacing it to the seat where he’d found it for the next traveler, but as his fingertips touched the paper and felt the fibers, he looked around the bus one more time.
 
