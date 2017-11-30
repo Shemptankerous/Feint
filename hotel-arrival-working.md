@@ -12,9 +12,9 @@ This seemed to have struck a nerve as George turned to face her with his eyebrow
 
 "Can I help you with that sir?" the bell hop called in to a man in a navy blue suit.The man's tie was loosened and slightly skewed left.  If he'd had a rumpled hat he would have been a ringer for a comic strip drunkard.  Maybe "Hic, Hic" floating up above his head in a word bubble.
 
-"Yes, Thanks." the man in the suit responded, clearly not drunk at all.  He gestured toward a non-descript, black, rolling suitcase.  It had a neon-green luggage tag with _L.Stevens_ written on the slip of lined paper inside.  The bellhop put one foot on the edge of the bus and reached in further to grasp the handle of Mr. Stevens' suitcase.  He could see the name _Kenneth _etched_ _in white lettering on the metalic copper colored name tag pinned to his burgundy colored jacket.  The tags copper was matched by the buttons and trim on the jacket of Kenneth's bellhop uniform. 
+"Yes, Thanks." the man in the suit responded, clearly not drunk at all.  He gestured toward a non-descript, black, rolling suitcase.  It had a neon-green luggage tag with _L.Stevens_ written on the slip of lined paper inside.  The bellhop put one foot on the edge of the bus and reached in further to grasp the handle of Mr. Stevens' suitcase.  He could see the name _Kenneth \_etched_ \_in white lettering on the metalic copper colored name tag pinned to his burgundy colored jacket.  The tags copper was matched by the buttons and accent trim on the square shouldered jacket of Kenneth's bellhop uniform.
 
-Duffle over his shoulder he stood, and gathered his suitcase. He had tucked the paper under his left arm when he’d stood up. He placed his right hand on it with the intention of replacing it to the seat where he’d found it for the next traveler, but as his fingertips touched the paper and felt the fibers, he looked around the bus one more time.
+Duffle over his shoulder he stood, and gathered his suitcase. He had tucked the copy of USA Today under his left arm when he’d stood up. He placed his right hand on it with the intention of replacing it to the seat where he’d found it for the next traveler, but as his fingertips touched the paper and felt the fibers, he looked around the bus one more time.
 
 The mother and little boy were making their way down the isle, they all shared one more smile and nod. He noticed that she had dark brown hair, nearly black, but not quite. Her features were broad with the exception of her lips which seemed thin in comparsion. Pretty wouldn’t be quite the right word, but she was attractive. She had a small beauty mark just under her left ear that he could see because on that side she’d brushed her hair behind her ear with her fingers.
 
@@ -24,7 +24,9 @@ Looking down toward the front of the van he saw the driver in the circular rear 
 
 “Unfortunitly, I don’t do a lot of traveling on a shuttle driver’s wages, but must hear that from 10 people a week just before they get off this bus, so I suppose it must be something that happens a lot.”
 
-“It is for me.”
+“It does to me. Hey,...”  he continued, "do you mind if I take this?" he said gesturing to the newspaper under his arm, his fingers still lightly clasping the the folded over pages.
 
-He removed his fingers from the news paper and left it tucked under his arm as he walked past the driver and out into the clamor of motors, and bags, and out above it all a jazz trumpet, blared and made everyone there feel oh so very tasteful.
+"Go right ahead." the driver replied "They throw in a bundle of 10 every morning.  The ones left I got to clean out at the end of the day anyway, so be my guest."
+
+He removed his fingers from the news paper and left it tucked under his arm as he walked past the driver and out into the clamor of motors, and bags, and out above it all a jazz trumpet, blared 
 
