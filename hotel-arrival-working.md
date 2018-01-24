@@ -4,7 +4,7 @@ As the driver applied the breaks three young men in bellhop uniforms began gathe
 
 "George," she said "be careful getting those down.  The boys' gifts are in that one." She gestured to a suitcase with a floral print.  George pulled it down out of the overhead rack.  He couldnt quite manage the weight as well as he'd thought and it thudded to the floor. After a click and a sigh, the wife muttered "I don't know why I waste my breath."
 
-"_I_ don't know why _you _needed to pack everything in the condo, Ellen." George responded as he hefted down two more suitcases.  "This isn't the wilds of Africa.  They have CVS here."
+"_I_ don't know why \_you \_needed to pack everything in the condo, Ellen." George responded as he hefted down two more suitcases.  "This isn't the wilds of Africa.  They have CVS here."
 
 "You wouldn't have load and unload the bags if you would have let Micheal pick us up."  Ellen responded.
 
@@ -12,7 +12,7 @@ This seemed to have struck a nerve as George turned to face her with his eyebrow
 
 "Can I help you with that sir?" the bell hop called in to a man in a navy blue suit.The man's tie was loosened and slightly skewed left.  If he'd had a rumpled hat he would have been a ringer for a comic strip drunkard.  Maybe "Hic, Hic" floating up above his head in a word bubble.
 
-"Yes, Thanks." the man in the suit responded, clearly not drunk at all.  He gestured toward a non-descript, black, rolling suitcase.  It had a neon-green luggage tag with _L.Stevens_ written on the slip of lined paper inside.  The bellhop put one foot on the edge of the bus and reached in further to grasp the handle of Mr. Stevens' suitcase.  He could see the name _Kenneth _etched_ _in white lettering on the metalic copper colored name tag pinned to his burgundy colored jacket.  The tags copper was matched by the buttons and accent trim on the square shouldered jacket of Kenneth's bellhop uniform.
+"Yes, Thanks." the man in the suit responded, clearly not drunk at all.  He gestured toward a non-descript, black, rolling suitcase.  It had a neon-green luggage tag with _L.Stevens_ written on the slip of lined paper inside.  The bellhop put one foot on the edge of the bus and reached in further to grasp the handle of Mr. Stevens' suitcase.  He could see the name _Kenneth \_etched_ \_in white lettering on the metalic copper colored name tag pinned to his burgundy colored jacket.  The tags copper was matched by the buttons and accent trim on the square shouldered jacket of Kenneth's bellhop uniform.
 
 Duffle over his shoulder he stood, and gathered his suitcase. He had tucked the copy of USA Today under his left arm when he’d stood up. He placed his right hand on it with the intention of replacing it to the seat where he’d found it for the next traveler, but as his fingertips touched the paper and felt the fibers, he looked around the bus one more time.
 
@@ -28,5 +28,7 @@ Looking down toward the front of the van he saw the driver in the circular rear 
 
 "Go right ahead." the driver replied "They throw in a bundle of 10 every morning.  The ones left I got to clean out at the end of the day anyway, so be my guest."
 
-He removed his fingers from the news paper and left it tucked under his arm as he walked past the driver and out into the clamor of motors and cab horns tooting, and bags hitting pavement, and guests conversing,  and staff calling across the space to one another,  and out above it all, from speakers nestled into the ceiling of the  a jazz trumpet blared from the ceiling of the porte cochere.  The bellhops had, by this time, begun unloading the rear luggage compartment of the remaining suitcases that were too large to be put overhead in the seating compartment.  They were lining up the mostly similar suitcases along the curb by the side of the shuttle.  
+He removed his fingers from the news paper and left it tucked under his arm as he walked past the driver and out into the clamor of motors and cab horns tooting, and bags hitting pavement, and guests conversing,  and staff calling across the space to one another,  and out above it all, from speakers nestled into the ceiling of the  a jazz trumpet blared from the ceiling of the porte cochere.  The bellhops had, by this time, begun unloading the rear luggage compartment of the remaining suitcases that were too large to be put overhead in the seating compartment.  They were lining up the mostly similar suitcases along the curb by the side of the shuttle.
+
+Picking his way across the entry way toward the entry apron that opened up like a funnel
 
